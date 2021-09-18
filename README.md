@@ -1,1 +1,1 @@
-# Prepinsta-Accenture
+# Prepinsta-MNCs
